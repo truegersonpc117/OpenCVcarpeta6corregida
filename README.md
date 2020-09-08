@@ -1,0 +1,1 @@
+# OpenCVcarpeta6corregida
